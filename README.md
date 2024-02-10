@@ -1,4 +1,4 @@
-### Hi there 👋 I am kʰyɾ.’ʃat
+### Hi there 👋 I am kʰyɾ.’ʃatʰ
 
 <!--
 **kursathalat/kursathalat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
